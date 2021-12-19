@@ -1,1 +1,0 @@
-# solucionesADM.github.io
